@@ -1,4 +1,4 @@
-- 😊 Hi, I’m @ClaudioPereyraSchwindt.
+- 😊 Hi, I’m @CAPS61.
 - 👀 I’m walking the first steps in Webdesign and developing
 
 <!---
